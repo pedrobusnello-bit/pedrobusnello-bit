@@ -7,3 +7,8 @@ Aluno do 2º Ano do Curso Técnico em Desenvolvimento de Sistemas do CEEP-PG
 - Java
 - Html
 - CSS
+
+
+
+
+Com 50684 troféus no brawl stars.
